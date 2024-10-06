@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EfeCansiz1
+- 👋 Hi, I’m Efe Demirhan Cansız
 - 🌱 I’m currently learning İnternational Relations
 
 
